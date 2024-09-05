@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @martynssz
+ @martynssz
